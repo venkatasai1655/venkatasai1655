@@ -5,4 +5,4 @@
 - 💬 Ask me about ... c lang
 - 📫 How to reach me: ... vijayawada
 - ⚡ Fun fact: ... Amma baboi
-- I am professional procastinator:sleeping::sleeping::sleeping:
+- I am professional procastinator:sleeping::sleeping::sleeping::sleeping:
